@@ -1,0 +1,2 @@
+# Newsletter-Logos
+Trust Banner
